@@ -4,4 +4,4 @@ In Zeiten immer komplexer werdender Ansprüche heißt es, Zusammenhänge zu vers
 
 Verschiedene Charaktere und Stärken ergänzen sich bei uns zu einem erfolgreichen Team. Wir möchten uns miteinander wohlfühlen, während wir Lösungen für unsere Kunden erarbeiten. Unseren Kollegen begegnen wir auch nach der Arbeitszeit mit einem ehrlichen Lächeln. Zu uns passt nicht jeder, doch wir passen zusammen – und darauf kommt es uns an!
 
-Wir lassen uns von neuen Kollegen gerne inspirieren! Das ist eine Änderung
+Wir lassen uns von neuen Kollegen gerne inspirieren! Das ist eine Änderung. Zweite Änderung
